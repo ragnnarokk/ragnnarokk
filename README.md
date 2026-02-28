@@ -1,5 +1,8 @@
 
-𝑀𝑒 𝑎𝑛𝑑 𝑚𝑦 ℎ𝑢𝑠𝑏𝑎𝑛𝑑!! >:3
+𝑀𝑒 𝑎𝑛𝑑 𝑚𝑦 ℎ𝑢𝑠𝑏𝑎𝑛𝑑!! 0_0
 
-![ac26e49eb45964f61c53957a9ec2fd88](https://github.com/user-attachments/assets/711c2ba4-2302-4aca-85b4-4bee4216e905)
+
+![032f3db9d5931c6fb71ba1f9c62cb7df](https://github.com/user-attachments/assets/95eebf91-7adc-4819-9ae4-f5b81eb86e60)
+
+
 
