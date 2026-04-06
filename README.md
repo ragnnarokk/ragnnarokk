@@ -1,8 +1,10 @@
+𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟
 
-𝑀𝑒 𝑎𝑛𝑑 𝑚𝑦 ℎ𝑢𝑠𝑏𝑎𝑛𝑑!! 0_0
+![9a6026769dd63f054c98d182ce8ac6b3](https://github.com/user-attachments/assets/36591798-0a91-4ff6-b458-3fa94c524f73)
 
 
-![032f3db9d5931c6fb71ba1f9c62cb7df](https://github.com/user-attachments/assets/95eebf91-7adc-4819-9ae4-f5b81eb86e60)
+
+
 
 
 
