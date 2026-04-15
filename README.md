@@ -1,6 +1,8 @@
-![9a6026769dd63f054c98d182ce8ac6b3](https://github.com/user-attachments/assets/36591798-0a91-4ff6-b458-3fa94c524f73)
+𝑴𝒆 𝒂𝒏𝒅 𝒎𝒚 𝒃𝒇 𝒊𝒓𝒍!?!11 Σ(°ロ°)
 
+<img width="474" height="418" alt="4dfc2ed571cfd0f6dde890094de004b5" src="https://github.com/user-attachments/assets/3dca7b33-9b15-44e8-9df4-ce9f4ab1dfc4" />
 
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 
 
